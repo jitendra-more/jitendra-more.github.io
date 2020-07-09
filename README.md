@@ -1,1 +1,0 @@
-# jitendra-more.github.io
